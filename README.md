@@ -1,1 +1,0 @@
-# arteideas0vxnsa
